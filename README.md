@@ -1,0 +1,1 @@
+# adapt-r-tasar-m-deseni
